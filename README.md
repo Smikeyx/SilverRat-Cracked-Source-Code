@@ -1,7 +1,7 @@
-# Hidden-CPLApplet-Builder-V2.0
+# SilverRat Cracked Source Code
 
 
-[<img src="https://media.discordapp.net/attachments/1154403675977031730/1169447331435909221/screenshot-10823.png?ex=65556fb3&is=6542fab3&hm=6d279345e1a3013f67fd56fe96d37f98606f83f292ec559156fadfa92923c7b4&=" width="600" height="300"
+[<img src="https://cdn.discordapp.com/attachments/1154403675977031730/1168322673118543943/image.jpg?ex=65515847&is=653ee347&hm=2a662719bd3e25e5017e3ede2ef56b7f0f309213ab0ec9272b8c548c4e8d61a9&" width="600" height="300"
 />](https://t.me/RE_Stunex)
 
 
@@ -27,4 +27,4 @@
 [<img src="https://media.discordapp.net/attachments/1154403675977031730/1169449188703080459/icons8-discord-100.png?ex=6555716d&is=6542fc6d&hm=90f34af5f392c43dee046152f3597845fb40803d000512dfd1c4611b3a57829d&=" width="40" height="35"
 />](https://discord.gg/VU2zZPyT4U)
 
-# Join TELEGRAM FOR PASSWOORD
+# Not For Free
